@@ -49,4 +49,4 @@ If this policy changes, the new version will be published at the same URL with a
 
 ## Contact
 
-Questions? Contact: **xino.online@gmail.com**
+Questions? Contact: **x.ino@outlook.com**
